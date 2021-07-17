@@ -1,0 +1,1 @@
+So.... I've gone away and and done two projects on freecodecamp responsive web design course and some of shayhowe's tutorial. I'm going to try TOP google homepage again as I found on the first attempt it to be very frustrating as I felt unequipped to complete the task.
